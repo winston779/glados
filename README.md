@@ -1,6 +1,6 @@
 # GLaDOS机场官网地址
 
-最新地址：[glados.one](https://glados.space/landing/FGYQQ-43W53-1RU2C-22FVX)
+最新地址：[glados.space](https://glados.space/landing/FGYQQ-43W53-1RU2C-22FVX)
 
 ## GLaDOS机场简介
 
